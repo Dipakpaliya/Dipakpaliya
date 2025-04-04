@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Aspiring Full-Stack Developer'2025
+🚀 Full-Stack Developer 🚀
 
 
 ## 🌐 Socials:
